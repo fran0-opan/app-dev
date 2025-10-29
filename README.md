@@ -27,7 +27,7 @@
 | ----------- | ----------- | ----------- | ----------- |
 | An Unexpected Journey | 2012 | Bilbo Baggins | Azog |
 | The Desolation of Smaug | 2013 | Bilbo Baggins | Smaug |
-| The Battle of the Five Armies | 2014 | Bilbo Baggins | Thorin (sort of :cry: ) |
+| The Battle of the Five Armies | 2014 | Bilbo Baggins | Thorin (sort of :disappointed: ) |
 
 ---
 
