@@ -32,12 +32,13 @@
 ---
 
 ## Why it's a favorite
-- I love the **magical world** and the amazing journey! 
-- Bilbo is small but **very brave** and clever :brain:.  
-- The story shows *friendship*, *courage*, and *adventure*.  
+- I love the **magical world** and the amazing journey.
+- Bilbo is small but **very brave** and clever :brain:. Inspiring. 
+- The story shows *friendship*, *courage*, and *adventure*, which are, again, inspiring.
+- The costumes and props are incredible, creative, well-crafted, well-designed, and mind-blowing
 - The places in Middle-earth are so beautiful and mysterious...
 - ~~I used to think hobbits were lazy~~, but now I know they can be true heroes!
-- :sparkles: ***Thranduil*** :sparkles:
+- And, of course... :sparkles: ***Thranduil*** :sparkles:
 
 ---
 
