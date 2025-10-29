@@ -40,7 +40,7 @@ My first repository
 - The story shows *friendship*, *courage*, and *adventure*.  
 - The places in Middle-earth are ==so beautiful and mysterious==!
 - ~~I used to think hobbits were lazy~~, but now I know they can be true heroes!
-- :sparkles: ==***Thranduil***== :sparkles:
+- :sparkles: ***Thranduil*** :sparkles:
 
 ---
 
